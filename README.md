@@ -1,1 +1,0 @@
-# FE17-BS-DAY1-Smejkal-Acic
